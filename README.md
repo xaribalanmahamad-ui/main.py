@@ -1,0 +1,2 @@
+# main.py
+KURDISTAN ROJAVA
